@@ -8,6 +8,7 @@
 - 100 g Pflanzenöl
 - Wasser
 - Back-Trennspray
+- 28 Weckgläser 230 ml
 
 ## Zubereitung
 
@@ -24,7 +25,7 @@ Weizenkörner grob schroten und mit allen Zutaten in der Schüssel der Knetmasch
 
 ### Kochstück
 - 1 kg Weizenkörner
-- 20 g Salz
+- 30 g Salz
 - 1,5 kg Wasser
 
 Alle Zutaten für 1h bei sehr niedriger Hitze kochen. Auf einem Induktionsherd mit hoher Hitze starten und wenn es kocht, Temperatur schrittweise bis auf die niedrigste Stufe reduzieren. Das Wasser soll nicht verkochen.
@@ -34,8 +35,8 @@ Alle Zutaten für 1h bei sehr niedriger Hitze kochen. Auf einem Induktionsherd m
 ### Hauptteig
 - Vorteig
 - Kochstück
-- 50g Pflanzenöl
-- 100g Wasser
+- 100 g Pflanzenöl
+- 100 g Wasser
 
 Vorteig, Öl und das Wasser aus dem Kochstück in der Knetmaschine auf Stufe 1 für 5 Minuten kneten. 15 Minuten auf Stufe 2-3 kneten. Gekochte Weizenkörner und das extra Wasser zugeben, weitere 10 Minuten auf Stufe 1 kneten.
 
