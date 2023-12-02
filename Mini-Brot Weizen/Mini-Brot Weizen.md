@@ -8,7 +8,7 @@
 - 100 g Pflanzenöl
 - Wasser
 - Back-Trennspray
-- 28 Weckgläser 230 ml
+- 29 Weckgläser 230 ml
 
 ## Zubereitung
 
