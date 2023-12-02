@@ -8,7 +8,7 @@
 - 100 g Pflanzenöl
 - Wasser
 - Back-Trennspray
-- 29 Weckgläser 230 ml
+- 29 Sturzglas 370 ml 
 
 ## Zubereitung
 
@@ -44,7 +44,7 @@ In der Ankarsrum den Teigroller mit etwas Abstand vom Schüsselrand fixieren, so
 
 Einen Teil des Teiges in eine separate Schüssel geben. 4 Stunden bei Raumtemperatur oder >12 Stunden im Kühlschrank gehen lassen. Das Teigvolumen sollte sich etwa verdoppelt haben.
 
-Weckgläser mit Back-Trennspray einfetten. Jeweils 190g Teig in Weckgläser füllen. Deckel ebenfalls einfetten und ohne Gummi auflegen. Ruhen lassen, bis der Teig circa 1 cm unter dem Glasrand aufgegangen ist (3 Stunden bei Raumtemperatur).
+Gläser mit Back-Trennspray einfetten. Jeweils 190g Teig in Weckgläser füllen. Deckel ebenfalls einfetten und ohne Gummi auflegen. Ruhen lassen, bis der Teig circa 1 cm unter dem Glasrand aufgegangen ist (3 Stunden bei Raumtemperatur).
 
 Bei 100° Ober-/Unterhitze für 8-10 Stunden backen (mit Deckel, aber ohne Gummi).
 
